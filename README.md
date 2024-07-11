@@ -7,3 +7,7 @@ https://www.tinkercad.com/things/f78aVRr5deu-lule-logo-ki-madat
 
  link of 3d scale model of prosthetic hand part.
 https://www.tinkercad.com/things/3Bvp9gsLE6w-copy-of-bionic-hand-prototype?sharecode=VCh3vGWdXxkeHDVkKtz6rVdPYgDioXFyFd_AfYHHX9U
+
+
+
+
